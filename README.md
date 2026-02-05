@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, I am a student at SMKN 1 Ciomas, I am majoring in PPLG, I really like computers and typing code using VSC.Hello, I am a student at SMKN 1 Ciomas, I am majoring in PPLG, I really like computers and typing code using VSC.
+Hello, I am devara and i study at SMKN 1 Ciomas, I am majoring in PPLG, I really like computers and typing code using VSC.
 
 
 ## 🌐 Socials:
